@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤖 Robotics enthusiast<br>🚀 Space fanatic<br>📖 Driven by my thirst for knowledge
+🤖 Robotics enthusiast<br>🎸 Bass player<br>🥾 Hiker<br>📖 Driven by my thirst for knowledge
 
 
 ## 🌐 Socials:
